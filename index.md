@@ -1,7 +1,5 @@
 ---
 ---
-# SandyEmpowers.com
-
 info@sandyempowers.com
 
 Are you ready to be supported to create a more loving, joyful and fulfilling life?
