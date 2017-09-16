@@ -77,3 +77,8 @@ What an incredible, heart opening speech.  Sandra so beautifully used words to
 
 *Angela D, USA*
 
+----
+
+Sandy is an amazing coach. I don't think there is anything that you are experiencing that she hasn't also gone through, in some way, at some point of her extremely varied and extraordinary  life. She is deeply in tune with the present moment and the healing words and perspectives pour through her with such relevance and insight. She walks and talks  kindness and generosity and to be in a session with her is an experience of trust, safety and containment. Working with Sandy brings the comfortable feeling of being with an old friend, but one who has a laser like insight into the situation at hand.
+
+*Julie N, Australia*
