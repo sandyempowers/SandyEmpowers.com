@@ -2,7 +2,9 @@
 ---
 info@sandyempowers.com
 
-Are you ready to be supported to create a more loving, joyful and fulfilling life?
+**Are you ready to be supported to create a more loving, joyful and fulfilling life?**
+
+![Life Coach](lifecoach.png)
 
 **I am here to change the world by empowering myself and others.**
 
