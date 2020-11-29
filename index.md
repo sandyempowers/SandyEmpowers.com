@@ -1,10 +1,37 @@
 ---
 ---
-info@sandyempowers.com
+[info@sandyempowers.com](mailto:info@sandyempowers.com)
 
 **Are you ready to be supported to create a more loving, joyful and fulfilling life?**
 
-![Life Coach](lifecoach.png)
+## Bio
+
+Sandra Ann Grant is a Life Transformed&trade; Advanced Certified Coach and co-author of _“Your True Power: The Key to Your Amazing Life”_.
+
+<center>
+
+![Life Coach and Co-Author of Your True Power](lifecoach-yourtruepower.png)
+
+</center>
+
+From a corporate background in Finance and Systems, she draws on over 28 years experience as teacher, trainer, coach, mentor; water polo at international level; professional dance; and her own personal hardships, to empower you to live a life of “Infinite possibilities”.
+
+Sandra helps ambitious, intuitive, creative women use their voice to
+
+- share stories, opinions, insights
+- correct and create strategies
+- make more money, and
+- get more work done doing less, by connecting to the stillness and their inner wisdom,
+
+so they can reclaim joy, aliveness, play, and a life worth celebrating.
+
+## Packages
+
+1:1 sessions via phone or online.
+
+**Contact:** [info@sandyempowers.com](mailto:info@sandyempowers.com)
+
+## Vision
 
 **I am here to change the world by empowering myself and others.**
 
@@ -41,6 +68,8 @@ People are miserable, separated, judgemental,** warlike, us and them, must be a 
 I am here to inspire, support, accelerate and empower you in your transformation, providing a safe, loving, compassionate, nurturing space for you to release the past, love and forgive yourself, and allow a new life to unfold.
 
 **Are you ready to be supported to create a more loving, joyful and fulfilling life?**
+
+**Contact:** [info@sandyempowers.com](mailto:info@sandyempowers.com)
 
 ## Testimonials 
 
