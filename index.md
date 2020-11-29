@@ -8,11 +8,7 @@
 
 Sandra Ann Grant is a Life Transformed&trade; Advanced Certified Coach and co-author of _“Your True Power: The Key to Your Amazing Life”_.
 
-<div style="text-align:center">
-
 ![Life Coach and Co-Author of Your True Power](lifecoach-yourtruepower.png)
-
-</div>
 
 From a corporate background in Finance and Systems, she draws on over 28 years experience as teacher, trainer, coach, mentor; water polo at international level; professional dance; and her own personal hardships, to empower you to live a life of “Infinite possibilities”.
 
