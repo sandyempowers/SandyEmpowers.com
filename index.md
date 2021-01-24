@@ -108,7 +108,9 @@ I can see where my clients need help but I couldn’t see my own blocks. I am so
 Her talents include an awareness of the core pattern (issue) ready to be released and the ability to root it out with skill and precision. Her laser beam accuracy is the reason I’ve continued to work  with her for almost a year.
 
 I would highly recommend Sandy for anyone who is ready to face their emotional patterns that are ready to be delicately rooted out and released. Sandy is highly intuitive and has been a powerful healer to my broken heart. I see love in all I am and do.  Since working with Sandy I have been a speaker on stage, promoted myself at a woman’s show, have developed my own healing events, and started my own emotional wellness practice without fear to make money!  I feel like a billion bucks!!! Thank you Sandy!
+
 ♾
+
 I worked with Sandy a few days ago and wow! Sandy helped me see my age old limiting beliefs and showed me how to let them go. I’m actually feeling lighter and freer.  When she finished helping me let go of emotional baggage, she then gave me practical steps to make different choices. The new practical choices are to clear my throat chakra and give me a voice. I’ve been struggling with physical symptoms in my throat for about six months. My throat is already feeling so much better.  Thank you Sandy for seeing and empowering me!
 
 _Cathy O, Alaska, USA_
