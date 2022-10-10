@@ -29,11 +29,10 @@ Sandra helps ambitious, intuitive, creative, female storytellers/communicators w
 
 ## Let's Connect
 
-- **LinkedIn:** http://linkedin.com/in/sandygrant-sydney ([Articles](https://www.linkedin.com/in/sandygrant-sydney/recent-activity/posts/))
-- **Facebook:**
-  - https://www.facebook.com/sandyempowers/
-  - https://www.facebook.com/ConnectThroughSandy/
-- **YouTube:** https://www.youtube.com/channel/UCVJIlFbofqKJ46YoT4oRB4Q
+- [LinkedIn](http://linkedin.com/in/sandygrant-sydney) ([Articles](https://www.linkedin.com/in/sandygrant-sydney/recent-activity/posts/))
+- [Sandy Empowers](https://www.facebook.com/sandyempowers/) (Facebook)
+- [Connect Through Sandy](https://www.facebook.com/ConnectThroughSandy/) (Facebook)
+- [YouTube](https://www.youtube.com/channel/UCVJIlFbofqKJ46YoT4oRB4Q)
 
 ## Vision
 
