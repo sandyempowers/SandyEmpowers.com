@@ -10,22 +10,30 @@ Sandra Ann Grant is a Life Transformed&trade; Advanced Certified Coach and co-au
 
 ![Life Coach and Co-Author of Your True Power](lifecoach-yourtruepower.png)
 
-From a corporate background in Finance and Systems, she draws on over 28 years experience as teacher, trainer, coach, mentor; water polo at international level; professional dance; and her own personal hardships, to empower you to live a life of “Infinite possibilities”.
+From a corporate background in Finance and Systems, she draws on over 30 years experience as teacher, trainer, coach, mentor; water polo at international level; professional dance; and her own personal hardships, to empower you to live a life of “Infinite possibilities”.
 
-Sandra helps ambitious, intuitive, creative women use their voice to
+Sandra helps ambitious, intuitive, creative, female storytellers/communicators who feel limited and/or stuck, to
 
-- share stories, opinions, insights
-- correct and create strategies
-- make more money, and
-- get more work done doing less, by connecting to the stillness and their inner wisdom,
-
-so they can reclaim joy, aliveness, play, and a life worth celebrating.
+- connect to stillness
+- voice their inner wisdom
+- get more done doing less
+- follow their vision
+- embrace the energy, joy, aliveness and play to stick with it, and
+- create a life worth celebrating.
 
 ## Packages
 
 1:1 sessions via phone or online.
 
 **Contact:** [info@sandyempowers.com](mailto:info@sandyempowers.com)
+
+## Let's Connect
+
+- **LinkedIn:** http://linkedin.com/in/sandygrant-sydney ([Articles](https://www.linkedin.com/in/sandygrant-sydney/recent-activity/posts/))
+- **Facebook:**
+  - https://www.facebook.com/sandyempowers/
+  - https://www.facebook.com/ConnectThroughSandy/
+- **YouTube:** https://www.youtube.com/channel/UCVJIlFbofqKJ46YoT4oRB4Q
 
 ## Vision
 
