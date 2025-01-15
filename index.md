@@ -2,6 +2,8 @@
 ---
 [info@sandyempowers.com](mailto:info@sandyempowers.com)
 
+**Change your story, change your life.**
+
 **Are you ready to be supported to create a more loving, joyful and fulfilling life?**
 
 ## Bio
