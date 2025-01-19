@@ -1,0 +1,5 @@
+# https://github.com/benbalter/jekyll-remote-theme
+# https://github.com/pages-themes/primer/releases
+remote_theme: pages-themes/primer@v0.6.0
+plugins:
+- jekyll-remote-theme
