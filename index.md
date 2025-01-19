@@ -42,7 +42,7 @@ Sandra helps ambitious, intuitive, creative, female storytellers/communicators w
 
 **I am here to change the world by empowering myself and others.**
 
-**I am here to end self esteem issues, limiting beliefs, feelings of being unloved/unsupported,** and to facilitate self love and self assurance so you know you **are** loved, you **are** important, **you** have a place in this world, and you **are** needed.
+**I am here to end self esteem issues, limiting beliefs, feelings of being unloved/unsupported,** and to facilitate self love and self assurance so you know you **are** loved, you **are** important, **you** have a place in this world, and you **are** needed.
 
 I know that we can have **a world where each and every person is empowered to fulfil their life purpose, and we are dancing together in love, peace and harmony.**
 
@@ -59,7 +59,7 @@ Through learning to help myself, **I am able to help others help themselves.** B
 You don't need to feel bad or less than any more. **You deserve to be happy, free, creative, unjudged, listened to, seen, heard, respected. You deserve to feel worthy, to feel equal, not less than.** You deserve to enjoy your life as a child so you can grow up to be a confident, caring, contributing, connected person in this world - one with true equal opportunities, who can thrive and survive independently in all aspects, who can enjoy loving, connected relationships and enjoy/revel in the beauty of nature and abundance for all.
 
 **The world could be experiencing...
-Fun, freedom, passion, excitement, a zest for learning, trying new things, adventure, opportunities...A world where there is no wrong, only experiences.** And these experiences marry together in unusual and magical ways to create new inventions, discoveries, opportunities and experiences.
+Fun, freedom, passion, excitement, a zest for learning, trying new things, adventure, opportunities...A world where there is no wrong, only experiences.** And these experiences marry together in unusual and magical ways to create new inventions, discoveries, opportunities and experiences.
 
 **Instead ...
 People are miserable, separated, judgemental,** warlike, us and them, must be a winner, fight to the end; where children should be "seen and not heard", kept in place, accessories, pander to your wishes and variances. There is no winner here.
@@ -78,16 +78,16 @@ I am here to inspire, support, accelerate and empower you in your transformation
 
 **Contact:** [info@sandyempowers.com](mailto:info@sandyempowers.com)
 
-## Testimonials 
+## Testimonials
 
-Sandy is an amazing coach.  She was able to quickly pick out what was causing me the most anguish in the moment and helped me to see the truth of what was causing it to show up and to feel it fully. In doing so, through a series of tools that I have never used before, she assisted me in opening up to the pain beneath the story.  I was able to clear the energy and it transformed how I am viewing the situation and gave me tools in case I started to dive back into that same space, how to get myself out of it and re-frame it.  Thank you, thank you. I am so grateful you were there for me.
+Sandy is an amazing coach.  She was able to quickly pick out what was causing me the most anguish in the moment and helped me to see the truth of what was causing it to show up and to feel it fully. In doing so, through a series of tools that I have never used before, she assisted me in opening up to the pain beneath the story.  I was able to clear the energy and it transformed how I am viewing the situation and gave me tools in case I started to dive back into that same space, how to get myself out of it and re-frame it.  Thank you, thank you. I am so grateful you were there for me.
 
 _Linda E, California, USA_
 
 ---
 
-My goodness, what can I say about Sandy?  I can say she is amazing!  Sandy helped me in a session to connect with my inner child and led me on an incredible healing journey.  I am
-still sifting through the knowledge obtained during that time.  She has assisted me multiple times with her intuition and connection to source, helping me understand and move forward from things blocking my path to true joy.  If you can spend some time with this amazing woman, I highly recommend it!  She has become very dear to me, I am extremely grateful she came into my life.
+My goodness, what can I say about Sandy?  I can say she is amazing!  Sandy helped me in a session to connect with my inner child and led me on an incredible healing journey.  I am
+still sifting through the knowledge obtained during that time.  She has assisted me multiple times with her intuition and connection to source, helping me understand and move forward from things blocking my path to true joy.  If you can spend some time with this amazing woman, I highly recommend it!  She has become very dear to me, I am extremely grateful she came into my life.
 
 _Michael O, Fort Collins, CO, USA_
 
@@ -159,7 +159,7 @@ _Hazel, Australia_
 
 Sandra is a wonderfully focused facilitator in the Life Transformation sessions we have done together. At times I wander off on a tangent away from the initial target energy, but she will notice this and bring me gently back to square, after dealing with any ramifications. I would warmly recommend her to anyone who is considering letting go of their "stuff" and releasing it into Love.
 
-Sandy demonstrated her presence in the moment of her true self on stage in Sedona. She was completely vulnerable in her extreme journey from child to adult life, and is able to transmit her real self to helping others now across the spectrum of humanity. I am honoured to knowing her through the transformative work she has helped me through, and recommend her services to one and all. 
+Sandy demonstrated her presence in the moment of her true self on stage in Sedona. She was completely vulnerable in her extreme journey from child to adult life, and is able to transmit her real self to helping others now across the spectrum of humanity. I am honoured to knowing her through the transformative work she has helped me through, and recommend her services to one and all.
 
 This came to me - When you "rock" during your phone processing facilitations, you are transmitting the energetic for nullifying "fight or flight", so that your clients can relax into diving deeply within to see/find their issues.
 
@@ -173,7 +173,7 @@ _Lauren Ann, Canberra, ACT, Australia_
 
 ---
 
-Sandy Grant is a knowledgeable life coach who skilfully helped me release blocks from my past and from my body. She also helped me uncover new awarenesses about myself and others.  I am so grateful.  
+Sandy Grant is a knowledgeable life coach who skilfully helped me release blocks from my past and from my body. She also helped me uncover new awarenesses about myself and others.  I am so grateful.  
 
 _Gale Z, USA_
 
@@ -189,7 +189,7 @@ _Michael M, New Mexico, USA_
 
 ---
 
-What an incredible, heart opening speech.  Sandra so beautifully used words to transport me on a journey to love.  Even the space between her words magnetically pulled me into my own sacred heart.  So grateful.
+What an incredible, heart opening speech.  Sandra so beautifully used words to transport me on a journey to love.  Even the space between her words magnetically pulled me into my own sacred heart.  So grateful.
 
 _Angela D, USA_
 
