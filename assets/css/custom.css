@@ -1,0 +1,11 @@
+.site-header {
+  text-align: center;
+  margin-bottom: 0.75rem;
+}
+
+.banner-logo {
+  display: block;
+  width: min(100%, 700px);
+  height: auto;
+  margin: 0 auto;
+}
