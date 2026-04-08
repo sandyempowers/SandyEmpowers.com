@@ -10,9 +10,9 @@ title: Sandy Empowers
 
 ## Bio
 
-Sandra Ann Grant is a Life Transformed&trade; Advanced Certified Coach and co-author of _“Your True Power: The Key to Your Amazing Life”_.
+![Life Coach and Co-Author of Your True Power](lifecoach-yourtruepower.png){:.bio-image}
 
-![Life Coach and Co-Author of Your True Power](lifecoach-yourtruepower.png)
+Sandra Ann Grant is a Life Transformed&trade; Advanced Certified Coach and co-author of _“Your True Power: The Key to Your Amazing Life”_.
 
 From a corporate background in Finance and Systems, she draws on over 30 years experience as teacher, trainer, coach, mentor; water polo at international level; professional dance; and her own personal hardships, to empower you to live a life of “Infinite possibilities”.
 
